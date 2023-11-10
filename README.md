@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DeLemospedro
-- 👀 I’m interested in inovat
+- 👀 I’m interested in inovação tecnologica 
 - 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
