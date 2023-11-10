@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DeLemospedro
 - 👀 I’m interested in inovação tecnologica 
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on someting programdores 
+- 💞️ I’m looking to collaborate on alguns programdores 
 - 📫 How to reach me : delemosaryclenepedro@gmail.com 
 
 <!---
